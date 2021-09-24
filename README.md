@@ -1,4 +1,4 @@
-### Hi everyone, I'm Thaís 👋
+### Hi everyone, I'm Thaís 🖖
 
 
 - 🌱 I’m currently learning HTML, CSS and JavaScript
